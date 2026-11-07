@@ -1,1 +1,515 @@
-YªçŠx-®éÜj×¢ëiºÚ+Š§j[h‘éÜ¢éí÷n8N‹Z–‹­¦ëeŠw¬Ôˆˆ‰1½…°=Á•¹$µ½µÁ…Ñ¥‰±”…Ñ•Ý…äÝ¥Ñ Á½±¥ä¡•­Ì…¹¥¸µµ•µ½ÉäÉ•Ù¥•Ü¸()Q¡¥Ìµ½‘Õ±”‘•±¥‰•É…Ñ•±ä‘½•Ì¹½Ð±½œÉ•ÅÕ•ÍÐ‰½‘¥•Ì½ÈÉ•‘•¹Ñ¥…±Ì¸A•ÉÍ¥ÍÑ•¹”)¥Ì¥¹©•Ñ•Ñ¡É½Õ „µ•Ñ…‘…Ñ„µ½¹±äÉ•½É‘•ÈìÉ•ÅÕ•ÍÐ½¹Ñ•¹ÑÌÍÑ…ä¥¸µ•µ½Éä)½¹±ä™½È™½ÉÝ…É‘¥¹œ…¹…¹ä…Ñ¥Ù”¡Õµ…¸É•Ù¥•Ü¸(ˆˆˆ()™É½´}}™ÕÑÕÉ•}|¥µÁ½ÉÐ…¹¹½Ñ…Ñ¥½¹Ì()¥µÁ½ÉÐ…Íå¹¥¼)¥µÁ½ÉÐ©Í½¸)¥µÁ½ÉÐ½Áä)¥µÁ½ÉÐÉ”)¥µÁ½ÉÐÍ½­•Ð)™É½´½±±•Ñ¥½¹Ì¥µÁ½ÉÐ‘•ÅÕ”)¥µÁ½ÉÐÑ¡É•…‘¥¹œ)¥µÁ½ÉÐÑ¥µ”)¥µÁ½ÉÐÕÕ¥)™É½´½¹ÕÉÉ•¹Ð¹™ÕÑÕÉ•Ì¥µÁ½ÉÐÕÑÕÉ”)™É½´‘…Ñ…±…ÍÍ•Ì¥µÁ½ÉÐ‘…Ñ…±…ÍÌ°™¥•±)™É½´ÑåÁ¥¹œ¥µÁ½ÉÐ¹ä°…±±…‰±”°AÉ½Ñ½½°()¥µÁ½ÉÐÕÙ¥½É¸)™É½´™…ÍÑ…Á¤¥µÁ½ÉÐ…ÍÑA$°I•ÅÕ•ÍÐ)™É½´™…ÍÑ…Á¤¹É•ÍÁ½¹Í•Ì¥µÁ½ÉÐ)M=9I•ÍÁ½¹Í”°I•ÍÁ½¹Í”)™É½´€¹ÁÉ½Ù¥‘•È¥µÁ½ÉÐ=Á•¹%½µÁ…Ñ¥‰±•AÉ½Ù¥‘•È°AÉ½Ù¥‘•É‘…ÁÑ•È(()‘•˜}½Á•¹}±¥ÍÑ•¹•È¡¡½ÍÐèÍÑÈ°Á½ÉÐè¥¹Ð°…ÑÑ•µÁÑÌè¥¹Ð€ô€ÌÈ¤€´øÑÕÁ±•mÍ½­•Ð¹Í½­•Ð°¥¹Ñtè(€€€€ˆˆ‰I•Í•ÉÙ”„±½½Á‰…¬±¥ÍÑ•¹•È‰•™½É”ÍÑ…ÉÑ¥¹œUÙ¥½É¸ìÍ…¸¹•…É‰äÁ½ÉÑÌ¥˜¹••‘•¸ˆˆˆ(€€€±…ÍÑ}•ÉÉ½Èè=MÉÉ½Èð9½¹”€ô9½¹”(€€€±…ÍÑ}Á½ÉÐ€ôÁ½ÉÐ(€€€™½È…¹‘¥‘…Ñ”¥¸É…¹”¡Á½ÉÐ°µ¥¸ ØÔÔÌØ°Á½ÉÐ€¬µ…à Ä°…ÑÑ•µÁÑÌ¤¤¤è(€€€€€€€±¥ÍÑ•¹•È€ôÍ½­•Ð¹Í½­•Ð¡Í½­•Ð¹}%9PØ¥˜¡½ÍÐ€ôô€ˆèèÄˆ•±Í”Í½­•Ð¹}%9P°Í½­•Ð¹M=-}MQI4¤(€€€€€€€ÑÉäè(€€€€€€€€€€€¥˜¡…Í…ÑÑÈ¡Í½­•Ð°€‰M=}a1UM%YIUMˆ¤è(€€€€€€€€€€€€€€€±¥ÍÑ•¹•È¹Í•ÑÍ½­½ÁÐ¡Í½­•Ð¹M=1}M=-P°Í½­•Ð¹M=}a1UM%YIUM°€Ä¤(€€€€€€€€€€€±¥ÍÑ•¹•È¹‰¥¹ ¡¡½ÍÐ°…¹‘¥‘…Ñ”¤¤(€€€€€€€€€€€±¥ÍÑ•¹•È¹±¥ÍÑ•¸¡Í½­•Ð¹M=5a=98¤(€€€€€€€€€€€±¥ÍÑ•¹•È¹Í•Ñ‰±½­¥¹œ¡…±Í”¤(€€€€€€€€€€€É•ÑÕÉ¸±¥ÍÑ•¹•È°¥¹Ð¡±¥ÍÑ•¹•È¹•ÑÍ½­¹…µ” ¥lÅt¤(€€€€€€€•á•ÁÐ=MÉÉ½È…Ì•áŒè(€€€€€€€€€€€±¥ÍÑ•¹•È¹±½Í” ¤(€€€€€€€€€€€±…ÍÑ}•ÉÉ½È€ô•áŒ(€€€€€€€€€€€±…ÍÑ}Á½ÉÐ€ô…¹‘¥‘…Ñ”(€€€€€€€€€€€¥˜•Ñ…ÑÑÈ¡•áŒ°€‰Ý¥¹•ÉÉ½Èˆ°9½¹”¤¹½Ð¥¸€ ÄÀÀÄÌ°€ÄÀÀÐà¤…¹•áŒ¹•ÉÉ¹¼¹½Ð¥¸€¡Í½­•Ð¹I%9UM°Í½­•Ð¹L¤è(€€€€€€€€€€€€€€€É…¥Í”=MÉÉ½È¡˜‰½Õ±¹½Ð‰¥¹±½½Á‰…¬Á½ÉÐí…¹‘¥‘…Ñ•ôèí•áôˆ¤™É½´•áŒ(€€€¥˜±…ÍÑ}•ÉÉ½È¥Ì9½¹”è(€€€€€€€É…¥Í”=MÉÉ½È¡˜‰9¼…Ù…¥±…‰±”±½½Á‰…¬Á½ÉÐ¥¸É…¹”íÁ½ÉÑôµí±…ÍÑ}Á½ÉÑô¸ˆ¤(€€€É…¥Í”=MÉÉ½È¡˜‰½Õ±¹½Ð‰¥¹±½½Á‰…¬Á½ÉÑÌíÁ½ÉÑôµí±…ÍÑ}Á½ÉÑôèí±…ÍÑ}•ÉÉ½Éôˆ¤™É½´±…ÍÑ}•ÉÉ½È(()±…ÍÌA½±¥å¹¥¹”¡AÉ½Ñ½½°¤è(€€€€ˆˆ‰A½±¥ä¥¹Ñ•É™…”¸Q¡”•Ù…±Õ…Ñ½ÈÍ••ÌÉ•ÅÕ•ÍÐ½¹Ñ•¹Ð‰ÕÐµÕÍÐ¹½ÐÁ•ÉÍ¥ÍÐ¥Ð¸ˆˆˆ((€€€‘•˜•Ù…±Õ…Ñ•}É•ÅÕ•ÍÐ¡Í•±˜°Á…å±½…è‘¥ÑmÍÑÈ°¹åt°½¹Ñ•áÐè‘¥ÑmÍÑÈ°¹åt¤€´ø‘¥ÑmÍÑÈ°¹åtè€¸¸¸(()±…ÍÌ5•Ñ…‘…Ñ…I•½É‘•È¡AÉ½Ñ½½°¤è(€€€€ˆˆ‰MÑ½É•ÌÍ…¹¥Ñ¥é•…Õ‘¥Ðµ•Ñ…‘…Ñ„½¹±äì¹•Ù•ÈÁ…ÍÌÑ¡¥Ì½‰©•ÐÑ¡”Á…å±½…¸ˆˆˆ((€€€‘•˜É•½É‘}É•ÅÕ•ÍÐ¡Í•±˜°µ•Ñ…‘…Ñ„è‘¥ÑmÍÑÈ°¹åt¤€´ø9½¹”è€¸¸¸(()‘…Ñ…±…ÍÌ)±…ÍÌ…Ñ•Ý…åM•ÑÑ¥¹Ìè(€€€€ˆˆ‰IÕ¹Ñ¥µ”Í•ÑÑ¥¹ÌìÑ¡”A$­•äÍ¡½Õ±½µ”™É½´Ñ¡”=L­•åÉ¥¹œ¸ˆˆˆ((€€€‰¥¹‘}¡½ÍÐèÍÑÈ€ô€ˆÄÈÜ¸À¸À¸Äˆ(€€€Á½ÉÐè¥¹Ð€ô€àÜØÔ(€€€ÕÁÍÑÉ•…µ}‰…Í•}ÕÉ°èÍÑÈ€ô€‰¡ÑÑÁÌè¼½…Á¤¹½Á•¹…¤¹½´½ØÄˆ(€€€µ½‘•°èÍÑÈ€ô€‰ÁÐ´Ñ¼µµ¥¹¤ˆ(€€€±¥•¹Ñ}±…‰•°èÍÑÈ€ô€ˆˆ(€€€…Á¥}­•äèÍÑÈ€ô™¥•±¡‘•™…Õ±Ðôˆˆ°É•ÁÈõ…±Í”¤(€€€É•ÅÕ•ÍÑ}Ñ¥µ•½ÕÑ}Í•½¹‘Ìè™±½…Ð€ô€äÀ¸À(€€€µ…á}‰½‘å}‰åÑ•Ìè¥¹Ð€ô€È€¨€ÄÀÈÐ€¨€ÄÀÈÐ(€€€É•Ù¥•Ý}Ñ¥µ•½ÕÑ}Í•½¹‘Ìè¥¹Ð€ô€ÄÈÀ((€€€ÁÉ½Á•ÉÑä(€€€‘•˜•¹‘Á½¥¹Ð¡Í•±˜¤€´øÍÑÈè(€€€€€€€É•ÑÕÉ¸˜‰¡ÑÑÀè¼½íÍ•±˜¹‰¥¹‘}¡½ÍÑôéíÍ•±˜¹Á½ÉÑô½ØÄˆ(()‘…Ñ…±…ÍÌ)±…ÍÌA•¹‘¥¹I•Ù¥•Üè(€€€€ˆˆ‰=¹”‰½‘ä¡•±¥¸µ•µ½ÉäÁ•¹‘¥¹œ…¸•áÁ±¥¥ÐÉ•Ù¥•Ý•È‘•¥Í¥½¸¸ˆˆˆ((€€€É•ÅÕ•ÍÑ}¥èÍÑÈ(€€€Á…å±½…è‘¥ÑmÍÑÈ°¹åt€ô™¥•±¡É•ÁÈõ…±Í”¤(€€€ÑÉ…”è±¥ÍÑm¹åt(€€€™¥¹‘¥¹Ìè±¥ÍÑm¹åt(€€€É•…Ñ•‘}…Ðè™±½…Ð(€€€‘•¥Í¥½¸èÕÑÕÉ•m‰½½±t(€€€ÁÉ½Ù¥‘•ÈèÍÑÈ€ô€‰½¹™¥ÕÉ•ÁÉ½Ù¥‘•Èˆ(€€€µ½‘•°èÍÑÈ€ô€‰Õ¹­¹½Ý¸ˆ(€€€±¥•¹Ñ}±…‰•°èÍÑÈ€ô€ˆˆ(€€€É•Í½±ÕÑ¥½¸èÍÑÈ€ô€‰Á•¹‘¥¹œˆ(€€€Í¥é•}‰åÑ•Ìè¥¹Ð€ô€À(()±…ÍÌ…Ñ•Ý…äè(€€€€ˆˆ‰=Ý¸Ñ¡”±½…°!QQ@Í•ÉÙ•È°ÁÉ½Ù¥‘•È™½ÉÝ…É‘¥¹œ°…¹±¥Ù”É•Ù¥•ÜÅÕ•Õ”¸ˆˆˆ((€€€‘•˜}}¥¹¥Ñ}| (€€€€€€€Í•±˜°(€€€€€€€Í•ÑÑ¥¹Ìè…Ñ•Ý…åM•ÑÑ¥¹Ì°(€€€€€€€Á½±¥å}•¹¥¹”èA½±¥å¹¥¹”°(€€€€€€€É•½É‘•Èè5•Ñ…‘…Ñ…I•½É‘•Èð9½¹”€ô9½¹”°(€€€€€€€½¹}…Ñ¥Ù¥Ñäè…±±…‰±•mm‘¥ÑmÍÑÈ°¹åut°9½¹•tð9½¹”€ô9½¹”°(€€€€€€€ÁÉ½Ù¥‘•É}™…Ñ½Éäè…±±…‰±•mm…Ñ•Ý…åM•ÑÑ¥¹Ít°AÉ½Ù¥‘•É‘…ÁÑ•Étð9½¹”€ô9½¹”°(€€€€¤€´ø9½¹”è(€€€€€€€Í•±˜¹Í•ÑÑ¥¹Ì€ôÍ•ÑÑ¥¹Ì(€€€€€€€Í•±˜¹Á½±¥å}•¹¥¹”€ôÁ½±¥å}•¹¥¹”(€€€€€€€Í•±˜¹É•½É‘•È€ôÉ•½É‘•È(€€€€€€€Í•±˜¹½¹}…Ñ¥Ù¥Ñä€ô½¹}…Ñ¥Ù¥Ñä(€€€€€€€Í•±˜¹ÁÉ½Ù¥‘•É}™…Ñ½Éä€ôÁÉ½Ù¥‘•É}™…Ñ½Éä½È=Á•¹%½µÁ…Ñ¥‰±•AÉ½Ù¥‘•È(€€€€€€€Í•±˜¹ÁÉ½Ù¥‘•É}…‘…ÁÑ•È€ôÍ•±˜¹ÁÉ½Ù¥‘•É}™…Ñ½Éä¡Í•ÑÑ¥¹Ì¤(€€€€€€€Í•±˜¹}±½¬€ôÑ¡É•…‘¥¹œ¹I1½¬ ¤(€€€€€€€Í•±˜¹}Á•¹‘¥¹œè‘¥ÑmÍÑÈ°A•¹‘¥¹I•Ù¥•Ýt€ôíô(€€€€€€€Í•±˜¹}É••¹Ðè‘•ÅÕ•m‘¥ÑmÍÑÈ°¹åut€ô‘•ÅÕ”¡µ…á±•¸ôÄÀÀ¤(€€€€€€€Í•±˜¹}É••¹Ñ}‰åÑ•Ì€ô€À(€€€€€€€Í•±˜¹}Á•¹‘¥¹}‰åÑ•Ì€ô€À(€€€€€€€Í•±˜¹}µ…á}É••¹Ñ}‰åÑ•Ì€ô€ÄÀ€¨€ÄÀÈÐ€¨€ÄÀÈÐ(€€€€€€€Í•±˜¹}µ…á}É•Ñ…¥¹•‘}É•ÅÕ•ÍÑ}‰åÑ•Ì€ô€ÄÀÈÐ€¨€ÄÀÈÐ(€€€€€€€Í•±˜¹}µ…á}Á•¹‘¥¹}‰åÑ•Ì€ô€ÄØ€¨€ÄÀÈÐ€¨€ÄÀÈÐ(€€€€€€€Í•±˜¹}Ñ¡É•…èÑ¡É•…‘¥¹œ¹Q¡É•…ð9½¹”€ô9½¹”(€€€€€€€Í•±˜¹}Í•ÉÙ•ÈèÕÙ¥½É¸¹M•ÉÙ•Èð9½¹”€ô9½¹”(€€€€€€€Í•±˜¹}Í•ÉÙ•É}Í½­•ÐèÍ½­•Ð¹Í½­•Ðð9½¹”€ô9½¹”(€€€€€€€Í•±˜¹}±½½Àè…Íå¹¥¼¹‰ÍÑÉ…ÑÙ•¹Ñ1½½Àð9½¹”€ô9½¹”(€€€€€€€Í•±˜¹}ÍÑ…ÉÑ•€ôÑ¡É•…‘¥¹œ¹Ù•¹Ð ¤(€€€€€€€Í•±˜¹}±…ÍÑ}•ÉÉ½ÈèÍÑÈð9½¹”€ô9½¹”(€€€€€€€Í•±˜¹}ÍÑ½ÁÁ¥¹œ€ô…±Í”(€€€€€€€Í•±˜¹…ÁÀ€ôÍ•±˜¹}‰Õ¥±‘}…ÁÀ ¤((€€€‘•˜}‰Õ¥±‘}…ÁÀ¡Í•±˜¤€´ø…ÍÑA$è(€€€€€€€…ÁÀ€ô…ÍÑA$¡Ñ¥Ñ±”ô‰$QÉ…™™¥Œ½¹ÑÉ½°…Ñ•Ý…äˆ°‘½Í}ÕÉ°õ9½¹”°É•‘½}ÕÉ°õ9½¹”¤((€€€€€€€…ÁÀ¹•Ð ˆ½¡•…±Ñ ˆ¤(€€€€€€€…Íå¹Œ‘•˜¡•…±Ñ  ¤€´ø‘¥ÑmÍÑÈ°¹åtè(€€€€€€€€€€€É•ÑÕÉ¸ì‰ÍÑ…ÑÕÌˆè€‰ÉÕ¹¹¥¹œˆ°€‰•¹‘Á½¥¹ÐˆèÍ•±˜¹Í•ÑÑ¥¹Ì¹•¹‘Á½¥¹Ñô((€€€€€€€…ÁÀ¹•Ð ˆ½ØÄ½µ½‘•±Ìˆ¤(€€€€€€€…Íå¹Œ‘•˜µ½‘•±Ì ¤€´øI•ÍÁ½¹Í”è(€€€€€€€€€€€É•ÅÕ•ÍÑ}¥€ôÍÑÈ¡ÕÕ¥¹ÕÕ¥Ð ¤¤(€€€€€€€€€€€ÍÑ…ÉÑ•€ôÑ¥µ”¹µ½¹½Ñ½¹¥Œ ¤(€€€€€€€€€€€É•ÍÁ½¹Í”€ô…Ý…¥ÐÍ•±˜¹}ÁÉ½áå}µ½‘•±Ì ¤(€€€€€€€€€€€•±…ÁÍ•€ôÑ¥µ”¹µ½¹½Ñ½¹¥Œ ¤€´ÍÑ…ÉÑ•(€€€€€€€€€€€Í•±˜¹}É•½É¡É•ÅÕ•ÍÑ}¥°€‰µ½‘•±Ìˆ°€‰µ½‘•±Ìˆ°mt°mt°€‰…±±½Üˆ°(€€€€€€€€€€€€€€€€€€€€€€€€€‰™½ÉÝ…É‘•ˆ¥˜É•ÍÁ½¹Í”¹ÍÑ…ÑÕÍ}½‘”€ð€ÐÀÀ•±Í”€‰ÁÉ½Ù¥‘•É}•ÉÉ½Èˆ°(€€€€€€€€€€€€€€€€€€€€€€€€ÍÑ…ÉÑ•°É•ÍÁ½¹Í”¹ÍÑ…ÑÕÍ}½‘”°•±…ÁÍ•õ•±…ÁÍ•°(€€€€€€€€€€€€€€€€€€€€€€€€ÑÉ…”õl‰5½‘•°±¥ÍÐÉ•ÅÕ•ÍÐ™½ÉÝ…É‘•Ñ¼Ñ¡”½¹™¥ÕÉ•ÁÉ½Ù¥‘•È¸‰t¤(€€€€€€€€€€€É•ÑÕÉ¸É•ÍÁ½¹Í”((€€€€€€€…ÁÀ¹Á½ÍÐ ˆ½ØÄ½¡…Ð½½µÁ±•Ñ¥½¹Ìˆ¤(€€€€€€€…Íå¹Œ‘•˜¡…Ñ}½µÁ±•Ñ¥½¹Ì¡É•ÅÕ•ÍÐèI•ÅÕ•ÍÐ¤€´øI•ÍÁ½¹Í”è(€€€€€€€€€€€É•ÅÕ•ÍÑ}¥€ôÍÑÈ¡ÕÕ¥¹ÕÕ¥Ð ¤¤(€€€€€€€€€€€ÍÑ…ÉÑ•€ôÑ¥µ”¹µ½¹½Ñ½¹¥Œ ¤(€€€€€€€€€€€±¥•¹Ñ}±…‰•°€ôÉ•ÅÕ•ÍÐ¹¡•…‘•ÉÌ¹•Ð ‰àµ±¥•¹Ðµ±…‰•°ˆ°€ˆˆ¥lèÄÀÁt(€€€€€€€€€€€‰½‘ä€ô…Ý…¥ÐÍ•±˜¹}É•…‘}±¥µ¥Ñ•‘}‰½‘ä¡É•ÅÕ•ÍÐ¤(€€€€€€€€€€€¥˜¥Í¥¹ÍÑ…¹”¡‰½‘ä°I•ÍÁ½¹Í”¤è(€€€€€€€€€€€€€€€Í•±˜¹}É•½É¡É•ÅÕ•ÍÑ}¥°€‰Õ¹­¹½Ý¸ˆ°€‰Õ¹­¹½Ý¸ˆ°mt°mt°€‰‘•¹äˆ°€‰¥¹Ù…±¥‘}É•ÅÕ•ÍÐˆ°ÍÑ…ÉÑ•°9½¹”¤(€€€€€€€€€€€€€€€É•ÑÕÉ¸‰½‘ä(€€€€€€€€€€€‰½‘å}Í¥é”€ô±•¸¡‰½‘ä¤(€€€€€€€€€€€ÑÉäè(€€€€€€€€€€€€€€€Á…å±½…€ô©Í½¸¹±½…‘Ì¡‰½‘ä¤(€€€€€€€€€€€€€€€¥˜¹½Ð¥Í¥¹ÍÑ…¹”¡Á…å±½…°‘¥Ð¤è(€€€€€€€€€€€€€€€€€€€É…¥Í”Y…±Õ•ÉÉ½È ‰)M=8É½½ÐµÕÍÐ‰”…¸½‰©•Ðˆ¤(€€€€€€€€€€€€€€€¥˜¹½Ð¥Í¥¹ÍÑ…¹”¡Á…å±½…¹•Ð ‰µ•ÍÍ…•Ìˆ¤°±¥ÍÐ¤è(€€€€€€€€€€€€€€€€€€€É…¥Í”Y…±Õ•ÉÉ½È ‰µ•ÍÍ…•ÌµÕÍÐ‰”„±¥ÍÐˆ¤(€€€€€€€€€€€€€€€¥˜Á…å±½…¹•Ð ‰ÍÑÉ•…´ˆ¤¥ÌQÉÕ”è(€€€€€€€€€€€€€€€€€€€±¥•¹Ñ}µ½‘•°€ôÍÑÈ¡Á…å±½…¹•Ð ‰µ½‘•°ˆ°€‰Õ¹­¹½Ý¸ˆ¤¥lèÄÈÁt(€€€€€€€€€€€€€€€€€€€Í•±˜¹}É•½É¡É•ÅÕ•ÍÑ}¥°±¥•¹Ñ}µ½‘•°°±¥•¹Ñ}µ½‘•°°mt°mt°€‰‘•¹äˆ°€‰Õ¹ÍÕÁÁ½ÉÑ•‘}ÍÑÉ•…µ¥¹œˆ°ÍÑ…ÉÑ•°9½¹”°±¥•¹Ñ}±…‰•°°(€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€ÑÉ…”õl‰MÑÉ•…µ¥¹œ¥Ì¹½ÐÍÕÁÁ½ÉÑ•‰äÑ¡¥Ì±½…°…Ñ•Ý…äìÉ•ÅÕ•ÍÐÝ…Ì¹½Ð™½ÉÝ…É‘•¸‰t°(€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€€É•…Í½¸ô‰MÑÉ•…µ¥¹œÉ•ÅÕ•ÍÐÉ•©•Ñ•‰•™½É”ÁÉ½Ù¥‘•È™½ÉÝ…É‘¥¹œ¸ˆ°Á…å±½…õÁ…å±½…°Á…å±½…‘}Í¥é”õ‰½‘å}Í¥é”¤(€€€€€€€€€€€€€€€€€€€É•ÑÕÉ¸)M=9I•ÍÁ½¹Í” (€€€€€€€€€€€€€€€€€€€€€€€ÍÑ…ÑÕÍ}½‘”ôÔÀÄ°(€€€€€€€€€€€€€€€€€€€€€€€½¹Ñ•¹Ðõì‰•ÉÉ½Èˆèì‰ÑåÁ”ˆè€‰Õ¹ÍÕÁÁ½ÉÑ•‘}ÍÑÉ•…µ¥¹œˆ°€‰µ•ÍÍ…”ˆè€‰MÑÉ•…µ¥¹œÉ•ÅÕ•ÍÑÌ…É”¹½ÐÍÕÁÁ½ÉÑ•‰äÑ¡¥Ì…Ñ•Ý…äå•Ð¸M•ÐÍÑÉ•…´õ™…±Í”¸‰õô°(€€€€€€€€€€€€€€€€€€€€¤(€€€€€€€€€€€•á•ÁÐ€¡©Í½¸¹)M=9•½‘•ÉÉ½È°Y…±Õ•ÉÉ½È°U¹¥½‘••½‘•ÉÉ½È°I•ÕÉÍ¥½¹ÉÉ½È¤è(€€€€€€€€€€€€€€€Í•±˜¹}É•½É¡É•ÅÕ•ÍÑ}¥°€‰Õ¹­¹½Ý¸ˆ°€‰Õ¹­¹½Ý¸ˆ°mt°mt°€‰‘•¹äˆ°€‰¥¹Ù…±¥‘}É•ÅÕ•ÍÐˆ°ÍÑ…ÉÑ•°9½¹”°(€€€€€€€€€€€€€€€€€€€€€€€€€€€€±¥•¹Ñ}±…‰•°°ÑÉ…”õl‰5…±™½Éµ•É•ÅÕ•ÍÐÉ•©•Ñ•‰•™½É”Á½±¥ä•Ù…±Õ…Ñ¥½¸¸‰t°É•…Í½¸ô‰áÁ•Ñ•„)M=8½‰©•ÐÝ¥Ñ „µ•ÍÍ…•Ì…ÉÉ…ä¸ˆ¤(€€€€€€€€€€€€€€€É•ÑÕÉ¸)M=9I•ÍÁ½¹Í”¡ÍÑ…ÑÕÍ}½‘”ôÐÀÀ°½¹Ñ•¹Ðõì‰•ÉÉ½Èˆèì‰ÑåÁ”ˆè€‰¥¹Ù…±¥‘}É•ÅÕ•ÍÑ}•ÉÉ½Èˆ°€‰µ•ÍÍ…”ˆè€‰áÁ•Ñ•„)M=8½‰©•ÐÝ¥Ñ „µ•ÍÍ…•Ì…ÉÉ…ä¸‰õô¤((€€€€€€€€€€€±¥•¹Ñ}µ½‘•°€ôÍÑÈ¡Á…å±½…¹•Ð ‰µ½‘•°ˆ°€‰Õ¹­¹½Ý¸ˆ¤¥lèÄÈÁt(€€€€€€€€€€€±¥•¹Ñ}±…‰•°€ô±¥•¹Ñ}±…‰•°½ÈÍ•±˜¹Í•ÑÑ¥¹Ì¹±¥•¹Ñ}±…‰•°(€€€€€€€€€€€½¹Ñ•áÐ€ôì‰É•ÅÕ•ÍÑ}¥ˆèÉ•ÅÕ•ÍÑ}¥°€‰ÁÉ½Ù¥‘•ÈˆèÍ•±˜¹}ÁÉ½Ù¥‘•É}¹…µ” ¤°€‰•¹‘Á½¥¹ÐˆèÍ•±˜¹Í•ÑÑ¥¹Ì¹ÕÁÍÑÉ•…µ}‰…Í•}ÕÉ°°(€€€€€€€€€€€€€€€€€€€€€€€‰µ½‘•°ˆè±¥•¹Ñ}µ½‘•°°€‰±¥•¹Ñ}±…‰•°ˆè±¥•¹Ñ}±…‰•±ô(€€€€€€€€€€€ÑÉäè(€€€€€€€€€€€€€€€É•ÍÕ±Ð€ôÍ•±˜¹Á½±¥å}•¹¥¹”¹•Ù…±Õ…Ñ•}É•ÅÕ•ÍÐ¡Á…å±½…°½¹Ñ•áÐ¤(€€€€€€€€€€€€€€€¥˜…Íå¹¥¼¹¥Í½É½ÕÑ¥¹”¡É•ÍÕ±Ð¤è(€€€€€€€€€€€€€€€€€€€É•ÍÕ±Ð€ô…Ý…¥ÐÉ•ÍÕ±Ð(€€€€€€€€€€€€€€€¥˜¹½Ð¥Í¥¹ÍÑ…¹”¡É•ÍÕ±Ð°‘¥Ð¤½ÈÉ•ÍÕ±Ð¹•Ð ‰‘•¥Í¥½¸ˆ¤¹½Ð¥¸ì‰…±±½Üˆ°€‰É•Ù¥•Üˆ°€‰‘•¹ä‰ôè(€€€€€€€€€€€€€€€€€€€É…¥Í”IÕ¹Ñ¥µ•ÉÉ½È ‰A½±¥ä•Ù…±Õ…Ñ½ÈÉ•ÑÕÉ¹•…¸¥¹Ù…±¥‘•¥Í¥½¸ˆ¤(€€€€€€€€€€€•á•ÁÐá•ÁÑ¥½¸è(€€€€€€€€€€€€€€€Í•±˜¹}É•½É¡É•ÅÕ•ÍÑ}¥°±¥•¹Ñ}µ½‘•°°±¥•¹Ñ}µ½‘•°°mt°mt°€‰‘•¹äˆ°€‰Á½±¥å}•ÉÉ½Èˆ°ÍÑ…ÉÑ•°9½¹”°(€€€€€€€€€€€€€€€€€€€€€€€€€€€€±¥•¹Ñ}±…‰•°°ÑÉ…”õl‰A½±¥ä•Ù…±Õ…Ñ¥½¸™…¥±•ìÉ•ÅÕ•ÍÐ‘•¹¥•±½Í•¸‰t°É•…Í½¸ô‰Q¡”±½…°Á½±¥äƒ}¸âÚ$z{-®éÜj×¢&—6RfÇVTW'&÷"‚$f–æF–ær7â—2–çfÆ–B"¢fÇVRÒfÇVU³§7F'EÒ²Ö6¶VB²fÇVU¶VæC¥Ð¢W†6WB„¶W”W'&÷"ÂG—TW'&÷"ÂfÇVTW'&÷"“ ¢&—6RfÇVTW'&÷"‚$f–æF–ær6÷VÆBæ÷B&RÖ6¶VB"¢vFWv’å÷6WE÷F…÷fÇVR†6ÆöæVBÂF‚ÂfÇVR¢&WGW&â6ÆöæV@¢W†6WBW†6WF–öã ¢2Ö6¶–ærf–ÇW&R×W7BæWfW"fÆÂ&6²FòW‡÷6–ærF†R÷&–v–æÂ&öG’à¢&WGW&â²&W'&÷"#¢%Væ&ÆRFò&VæFW"6fVÇ’Ö6¶VB&WVW7B6öçFVçBâ'Ð ¢7FF–6ÖWF†ö@¢FVb÷F…÷fÇVR‡&ö÷C¢ç’ÂFƒ¢7G"’Óâç“ ¢G'“ ¢'G2Ò&Ræf–æFÆÂ‡"%Ââ…µâåµÅÕÒ²—ÅÅ²…ÆB²•ÅÒ"ÂF…³¥Ò¢fÇVRÒ&ö÷@¢f÷"¶W’Â–æFW‚–â'G3 ¢fÇVRÒfÇVU¶–çB†–æFW‚•Ò–b–æFW‚VÇ6RfÇVU¶¶W•Ð¢&WGW&âfÇVP¢W†6WB„–æFW„W'&÷"Â¶W”W'&÷"ÂG—TW'&÷"ÂfÇVTW'&÷"“ ¢&WGW&âæöæP ¢7FF–6ÖWF†ö@¢FVb÷6WE÷F…÷fÇVR‡&ö÷C¢ç’ÂFƒ¢7G"Â&WÆ6VÖVçC¢ç’’ÓâæöæS ¢G'“ ¢'G2Ò&Ræf–æFÆÂ‡"%Ââ…µâåµÅÕÒ²—ÅÅ²…ÆB²•ÅÒ"ÂF…³¥Ò¢&VçBÒ&ö÷@¢f÷"¶W’Â–æFW‚–â'G5³¢ÓÓ ¢&VçBÒ&VçE¶–çB†–æFW‚•Ò–b–æFW‚VÇ6R&VçE¶¶W•Ð¢¶W’Â–æFW‚Ò'G5²ÓÐ¢&VçE¶–çB†–æFW‚’–b–æFW‚VÇ6R¶W•ÒÒ&WÆ6VÖVç@¢W†6WB„–æFW„W'&÷"Â¶W”W'&÷"ÂG—TW'&÷"ÂfÇVTW'&÷"“ ¢&WGW&à ¢FVb&W6öÇfU÷&Wf–Wr‡6VÆbÂ&WVW7Eö–C¢7G"Â&÷fS¢&ööÂ’Óâ&ööÃ ¢""%&W6öÇfRVæF–ær&WVW7C²öæÇ’&÷fÂ6â&VÆV6R—BW7G&VÒâ"" ¢v—F‚6VÆbåöÆö6³ ¢—FVÒÒ6VÆbå÷VæF–ærævWB‡&WVW7Eö–B¢–b—FVÒ—2æöæR÷"—FVÒæFV6—6–öâæFöæR‚’÷"6VÆbå÷7F÷–æs ¢&WGW&âfÇ6P¢—FVÒç&W6öÇWF–öâÒ&&÷fVB"–b&÷fRVÇ6R'&Wf–WuöFVæ–VB ¢—FVÒæFV6—6–öâç6WE÷&W7VÇB†&ööÂ†&÷fR’¢6VÆbåöVÖ—B‡²&WfVçB#¢'&Wf–Wu÷&W6öÇfVB"Â'&WVW7Eö–B#¢&WVW7Eö–BÂ&&÷fVB#¢&ööÂ†&÷fR—Ò¢&WGW&âG'VP ¢FVb÷&V6÷&B‡6VÆbÂ&WVW7Eö–C¢7G"ÂÖöFVÃ¢7G"Â6Æ–VçEöÖöFVÃ¢7G"Âf–æF–æw3¢Æ—7E´ç•ÒÂ'VÆUö–G3¢Æ—7E´ç•ÒÂFV6—6–öã¢7G"Â÷WF6öÖS¢7G"Â7F'FVC¢fÆöBÂW7G&VÕ÷7FGW3¢–çBÂæöæRÂ6Æ–VçEöÆ&VÃ¢7G"Ò""ÂVÆ6VC¢fÆöBÂæöæRÒæöæRÂG&6S¢Æ—7E´ç•ÒÂæöæRÒæöæRÂ&V6öã¢7G"Ò""Â–ÆöC¢F–7E·7G"Âç•ÒÂæöæRÒæöæRÂ–ÆöE÷6—¦S¢–çBÒ’ÓâæöæS ¢GW&F–öâÒVÆ6VB–bVÆ6VB—2æ÷BæöæRVÇ6RÖ‚ƒãÂF–ÖRæÖöæ÷Föæ–2‚’Ò7F'FVB¢6Æ76W2ÒµÐ¢f÷"f–æF–ær–âf–æF–æw2÷"µÓ ¢–b—6–ç7Fæ6R†f–æF–ærÂF–7B“ ¢fÇVRÒf–æF–ærævWB‚&FFö6Æ72"’÷"f–æF–ærævWB‚&6Æ72"’÷"f–æF–ærævWB‚&æÖR"¢–bfÇVRæBfÇVRæ÷B–â6Æ76W3 ¢6Æ76W2æVæB‡7G"‡fÇVR’¢ÖWFFFÒ²'F–ÖW7F×#¢F–ÖRçF–ÖR‚’Â'&WVW7Eö–B#¢&WVW7Eö–BÂ'&÷f–FW"#¢6VÆbå÷&÷f–FW%öæÖR‚’Â&ÖöFVÂ#¢ÖöFVÂÂ&6Æ–VçEöÖöFVÂ#¢6Æ–VçEöÖöFVÂÂ&6Æ–VçEöÆ&VÂ#¢6Æ–VçEöÆ&VÂÂ&FFö6Æ76W2#¢6Æ76W2Â&f–æF–æw2#¢f–æF–æw2÷"µÒÂ''VÆUö–G2#¢'VÆUö–G2÷"µÒÂ&FV6—6–öâ#¢FV6—6–öâÂ&÷WF6öÖR#¢÷WF6öÖRÂ&VÆ6VEö×2#¢GW&F–öâ¢Â&VÆ6VE÷6V6öæG2#¢GW&F–öâÂ'W7G&VÕ÷7FGW2#¢W7G&VÕ÷7FGW2Â'G&6R#¢G&6R÷"µÒÂ&FV6—6–öå÷G&6R#¢G&6R÷"µÒÂ'&V6öâ#¢&V6öçÐ¢–b6VÆbç&V6÷&FW# ¢G'“ ¢6VÆbç&V6÷&FW"ç&V6÷&E÷&WVW7B†ÖWFFF¢W†6WBW†6WF–öã ¢70¢–b–ÆöB—2æ÷BæöæRæBæ÷B6VÆbå÷7F÷–æs ¢6—¦Uö'—FW2Ò–ÆöE÷6—¦P¢v—F‚6VÆbåöÆö6³ ¢–bæ÷B6VÆbå÷7F÷–æræB6—¦Uö'—FW2ÃÒ6VÆbåöÖ…÷&WF–æVE÷&WVW7Eö'—FW3 ¢v†–ÆR6VÆbå÷&V6VçBæB†ÆVâ‡6VÆbå÷&V6VçB’ãÒ÷"6VÆbå÷&V6VçEö'—FW2²6—¦Uö'—FW2â6VÆbåöÖ…÷&V6VçEö'—FW2“ ¢&VÖ÷fVBÒ6VÆbå÷&V6VçBç÷ÆVgB‚¢6VÆbå÷&V6VçEö'—FW2ÒÖ‚ƒÂ6VÆbå÷&V6VçEö'—FW2Ò–çB‡&VÖ÷fVBævWB‚'6—¦Uö'—FW2"Â’’¢6VÆbå÷&V6VçBæVæB‡²&ÖWFFF#¢6÷’æFVW6÷’†ÖWFFF’Â'–ÆöB#¢6÷’æFVW6÷’‡–ÆöB’À¢&f–æF–æw2#¢6÷’æFVW6÷’†f–æF–æw2÷"µÒ’Â'6—¦Uö'—FW2#¢6—¦Uö'—FW7Ò¢6VÆbå÷&V6VçEö'—FW2³Ò6—¦Uö'—FW0¢6VÆbåöVÖ—B‡²&WfVçB#¢'&WVW7Eö6ö×ÆWFVB"Â¢¦ÖWFFFÂ&f–æF–æw2#¢f–æF–æw2÷"µ×Ò ¢FVböVÖ—B‡6VÆbÂWfVçC¢F–7E·7G"Âç•Ò’ÓâæöæS ¢–b6VÆbæöåö7F—f—G“ ¢G'“ ¢6VÆbæöåö7F—f—G’†WfVçB¢W†6WBW†6WF–öã ¢70 ¢FVb7F'B‡6VÆbÂF–ÖV÷WC¢fÆöBÒ‚ã’ÓâæöæS ¢""%7F'BWf–6÷&âöâF†R6öæf–wW&VB–çFW&f6R–âFVÖöâF‡&VBâ"" ¢–b6VÆbæ—5÷'Vææ–æs ¢&WGW&à¢–b6VÆbç6WGF–æw2æ&–æEö†÷7Bæ÷B–â²##rããã"Â&Æö6Æ†÷7B"Â#££'Ó ¢&—6RfÇVTW'&÷"‚%F†RvFWv’Ö’&–æBöæÇ’FòÆö6Æ†÷7BVæÆW72âW‡Æ–6—BæWGv÷&²W‡÷7W&RfÆ÷r—2–×ÆVÖVçFVBâ"¢&WVW7FVE÷÷'BÒ6VÆbç6WGF–æw2ç÷'@¢Æ—7FVæW"Â7GVÅ÷÷'BÒö÷VåöÆ—7FVæW"‡6VÆbç6WGF–æw2æ&–æEö†÷7BÂ&WVW7FVE÷÷'B¢6VÆbå÷6W'fW%÷6ö6¶WBÒÆ—7FVæW ¢6VÆbç6WGF–æw2ç÷'BÒ7GVÅ÷÷'@¢6VÆbå÷÷'Eöæ÷F–6RÒ†b%÷'B·&WVW7FVE÷÷'GÒv2Væf–Æ&ÆS²W6–ær¶7GVÅ÷÷'GÒâWFFR6Æ–VçG2FòF†RF—7Æ–VBVæGö–çBâ ¢–b7GVÅ÷÷'BÒ&WVW7FVE÷÷'BVÇ6R""¢6VÆbå÷7F÷–ærÒfÇ6P¢6VÆbå÷7F'FVBæ6ÆV"‚¢2v–æF÷vVB”–ç7FÆÆW"†2æò6öç6öÆR7G&V×3²Wf–6÷&âw2FVfVÇ@¢2F–7D6öæf–rf÷&ÖGFW"f–Ç2v†Vâ7—2ç7FFW'"—2æöæRà¢6öæf–rÒWf–6÷&âä6öæf–r‡6VÆbæÂ†÷7C×6VÆbç6WGF–æw2æ&–æEö†÷7BÂ÷'C×6VÆbç6WGF–æw2ç÷'BÀ¢ÆöuöÆWfVÃÒ&W'&÷""Â66W75öÆösÔfÇ6RÂÆöuö6öæf–sÔæöæR¢6VÆbå÷6W'fW"ÒWf–6÷&âå6W'fW"†6öæf–r ¢FVb'Vâ‚’ÓâæöæS ¢6VÆbåöÆö÷Ò7–æ6–òææWuöWfVçEöÆö÷‚¢7–æ6–òç6WEöWfVçEöÆö÷‡6VÆbåöÆö÷¢G'“ ¢6VÆbåöÆö÷ç'Vå÷VçF–Åö6ö×ÆWFR‡6VÆbå÷6W'fW"ç6W'fR‡6ö6¶WG3Õ¶Æ—7FVæW%Ò’¢W†6WBW†6WF–öâ2W†3 ¢2¶VWW6VgVÂÆö6ÂF–væ÷7F–2v†–ÆRVç7W&–ær7&VFVçF–Ç2&RæWfW"V6†öVBà¢FWF–ÂÒ7G"†W†2’ç7G&—‚¢–b6VÆbç6WGF–æw2æ•ö¶W“ ¢FWF–ÂÒFWF–Âç&WÆ6R‡6VÆbç6WGF–æw2æ•ö¶W’Â%·&VF7FVEÒ"¢FWF–ÂÒFWF–Å³£ƒÒ÷"$æòFF—F–öæÂFWF–Ç2â ¢6VÆbåöÆ7EöW'&÷"Òb$vFWv’6W'fW"f–ÆVB‡·G—R†W†2’åõöæÖUõ÷Ó¢¶FWF–ÇÒ’â ¢f–æÆÇ“ ¢G'“ ¢Æ—7FVæW"æ6Æ÷6R‚¢W†6WBõ4W'&÷# ¢70¢6VÆbå÷6W'fW%÷6ö6¶WBÒæöæP¢6VÆbåöÆö÷æ6Æ÷6R‚¢6VÆbåöÆö÷ÒæöæP ¢6VÆbå÷F‡&VBÒF‡&VF–æråF‡&VB‡F&vWC×'VâÂæÖSÒ&’×G&ff–2Ö6öçG&öÂÖvFWv’"ÂFVÖöãÕG'VR¢6VÆbå÷F‡&VBç7F'B‚¢FVFÆ–æRÒF–ÖRæÖöæ÷Föæ–2‚’²F–ÖV÷W@¢v†–ÆRF–ÖRæÖöæ÷Föæ–2‚’ÂFVFÆ–æS ¢–b6VÆbå÷6W'fW"ç7F'FVC ¢&WGW&à¢–bæ÷B6VÆbå÷F‡&VBæ—5öÆ—fR‚“ ¢'&V°¢F–ÖRç6ÆVWƒãR¢6VÆbåöÆ7EöW'&÷"Ò6VÆbåöÆ7EöW'&÷"÷"b$vFWv’F–Bæ÷B7F'Böâ·6VÆbç6WGF–æw2æ&–æEö†÷7GÓ§·6VÆbç6WGF–æw2ç÷'GÒv—F†–â·F–ÖV÷WC¦wÒ6V6öæG2â ¢6VÆbç7F÷‚¢&—6R'VçF–ÖTW'&÷"‡6VÆbåöÆ7EöW'&÷" ¢FVb7F÷‡6VÆbÂF–ÖV÷WC¢fÆöBÒ‚ã’ÓâæöæS ¢""%7F÷66WF–ær&WVW7G2æBf–ÂÆÂVæF–ær&Wf–Ww26Æ÷6VBâ"" ¢6VÆbå÷7F÷–ærÒG'VP¢v—F‚6VÆbåöÆö6³ ¢f÷"VæF–ær–â6VÆbå÷VæF–ærçfÇVW2‚“ ¢–bæ÷BVæF–æræFV6—6–öâæFöæR‚“ ¢VæF–ærç&W6öÇWF–öâÒ&vFWv•÷7F÷VB ¢VæF–æræFV6—6–öâç6WE÷&W7VÇB„fÇ6R¢6VÆbå÷VæF–æræ6ÆV"‚¢6VÆbå÷VæF–æuö'—FW2Ò ¢6VÆbå÷&V6VçBæ6ÆV"‚¢6VÆbå÷&V6VçEö'—FW2Ò ¢–b6VÆbå÷6W'fW# ¢6VÆbå÷6W'fW"ç6†÷VÆEöW†—BÒG'VP¢–b6VÆbå÷6W'fW%÷6ö6¶WBæBæ÷B6VÆbå÷F‡&VC ¢6VÆbå÷6W'fW%÷6ö6¶WBæ6Æ÷6R‚¢–b6VÆbå÷F‡&VC ¢6VÆbå÷F‡&VBæ¦ö–â‡F–ÖV÷WB¢6VÆbå÷6W'fW"ÒæöæP¢6VÆbå÷F‡&VBÒæöæP ¢&÷W'G¢FVb—5÷'Vææ–ær‡6VÆb’Óâ&ööÃ ¢&WGW&â&ööÂ‡6VÆbå÷F‡&VBæB6VÆbå÷F‡&VBæ—5öÆ—fR‚’æB6VÆbå÷6W'fW"æBæ÷B6VÆbå÷6W'fW"ç6†÷VÆEöW†—B ¢&÷W'G¢FVb7FGW2‡6VÆb’ÓâF–7E·7G"Âç•Ó ¢&WGW&â²''Vææ–ær#¢6VÆbæ—5÷'Vææ–ærÂ&VæGö–çB#¢6VÆbç6WGF–æw2æVæGö–çBÂ'VæF–æu÷&Wf–Ww2#¢ÆVâ‡6VÆbçVæF–æu÷&Wf–Ww2‚’’Â&W'&÷"#¢6VÆbåöÆ7EöW'&÷"Â&æ÷F–6R#¢vWFGG"‡6VÆbÂ%÷÷'Eöæ÷F–6R"Â""—Ð ¢FVbWFFU÷6WGF–æw2‡6VÆbÂ6WGF–æw3¢vFWv•6WGF–æw2’ÓâæöæS ¢""$Ç’WFFVB6WGF–æw2Â&W7F'F–ærF†RÆ—7FVæW"–bFG&W72÷÷'B6†ævVBâ"" ¢öÆEöFG&W72Ò‡6VÆbç6WGF–æw2æ&–æEö†÷7BÂ6VÆbç6WGF–æw2ç÷'B¢æWuöFG&W72Ò‡6WGF–æw2æ&–æEö†÷7BÂ6WGF–æw2ç÷'B¢v5÷'Vææ–ærÒ6VÆbæ—5÷'Vææ–æp¢–bv5÷'Vææ–æræBöÆEöFG&W72ÒæWuöFG&W73 ¢6VÆbç7F÷‚¢6VÆbç6WGF–æw2Ò6WGF–æw0¢6VÆbç&÷f–FW%öFFW"Ò6VÆbç&÷f–FW%öf7F÷'’‡6WGF–æw2¢–bv5÷'Vææ–æræBöÆEöFG&W72ÒæWuöFG&W73 ¢6VÆbç7F'B‚  
+"""Local OpenAI-compatible gateway with policy checks and in-memory review.
+
+This module deliberately does not log request bodies or credentials. Persistence
+is injected through a metadata-only recorder; request contents stay in memory
+only for forwarding and any active human review.
+"""
+
+from __future__ import annotations
+
+import asyncio
+import json
+import copy
+import re
+import socket
+from collections import deque
+import threading
+import time
+import uuid
+from concurrent.futures import Future
+from dataclasses import dataclass, field
+from typing import Any, Callable, Protocol
+
+import uvicorn
+from fastapi import FastAPI, Request
+from fastapi.responses import JSONResponse, Response
+from .provider import OpenAICompatibleProvider, ProviderAdapter
+
+
+def _open_listener(host: str, port: int, attempts: int = 32) -> tuple[socket.socket, int]:
+    """Reserve a loopback listener before starting Uvicorn; scan nearby ports if needed."""
+    last_error: OSError | None = None
+    last_port = port
+    for candidate in range(port, min(65536, port + max(1, attempts))):
+        listener = socket.socket(socket.AF_INET6 if host == "::1" else socket.AF_INET, socket.SOCK_STREAM)
+        try:
+            if hasattr(socket, "SO_EXCLUSIVEADDRUSE"):
+                listener.setsockopt(socket.SOL_SOCKET, socket.SO_EXCLUSIVEADDRUSE, 1)
+            listener.bind((host, candidate))
+            listener.listen(socket.SOMAXCONN)
+            listener.setblocking(False)
+            return listener, int(listener.getsockname()[1])
+        except OSError as exc:
+            listener.close()
+            last_error = exc
+            last_port = candidate
+            if getattr(exc, "winerror", None) not in (10013, 10048) and exc.errno not in (socket.EADDRINUSE, socket.EACCES):
+                raise OSError(f"Could not bind loopback port {candidate}: {exc}") from exc
+    if last_error is None:
+        raise OSError(f"No available loopback port in range {port}-{last_port}.")
+    raise OSError(f"Could not bind loopback ports {port}-{last_port}: {last_error}") from last_error
+
+
+class PolicyEngine(Protocol):
+    """Policy interface. The evaluator sees request content but must not persist it."""
+
+    def evaluate_request(self, payload: dict[str, Any], context: dict[str, Any]) -> dict[str, Any]: ...
+
+
+class MetadataRecorder(Protocol):
+    """Stores sanitized audit metadata only; never pass this object the payload."""
+
+    def record_request(self, metadata: dict[str, Any]) -> None: ...
+
+
+@dataclass
+class GatewaySettings:
+    """Runtime settings; the API key should come from the OS keyring."""
+
+    bind_host: str = "127.0.0.1"
+    port: int = 8765
+    upstream_base_url: str = "https://api.openai.com/v1"
+    model: str = "gpt-4o-mini"
+    client_label: str = ""
+    api_key: str = field(default="", repr=False)
+    request_timeout_seconds: float = 90.0
+    max_body_bytes: int = 2 * 1024 * 1024
+    review_timeout_seconds: int = 120
+
+    @property
+    def endpoint(self) -> str:
+        return f"http://{self.bind_host}:{self.port}/v1"
+
+
+@dataclass
+class PendingReview:
+    """One body held in memory pending an explicit reviewer decision."""
+
+    request_id: str
+    payload: dict[str, Any] = field(repr=False)
+    trace: list[Any]
+    findings: list[Any]
+    created_at: float
+    decision: Future[bool]
+    provider: str = "configured provider"
+    model: str = "unknown"
+    client_label: str = ""
+    resolution: str = "pending"
+    size_bytes: int = 0
+
+
+class Gateway:
+    """Own the local HTTP server, provider forwarding, and live review queue."""
+
+    def __init__(
+        self,
+        settings: GatewaySettings,
+        policy_engine: PolicyEngine,
+        recorder: MetadataRecorder | None = None,
+        on_activity: Callable[[dict[str, Any]], None] | None = None,
+        provider_factory: Callable[[GatewaySettings], ProviderAdapter] | None = None,
+    ) -> None:
+        self.settings = settings
+        self.policy_engine = policy_engine
+        self.recorder = recorder
+        self.on_activity = on_activity
+        self.provider_factory = provider_factory or OpenAICompatibleProvider
+        self.provider_adapter = self.provider_factory(settings)
+        self._lock = threading.RLock()
+        self._pending: dict[str, PendingReview] = {}
+        self._recent: deque[dict[str, Any]] = deque(maxlen=100)
+        self._recent_bytes = 0
+        self._pending_bytes = 0
+        self._max_recent_bytes = 10 * 1024 * 1024
+        self._max_retained_request_bytes = 1024 * 1024
+        self._max_pending_bytes = 16 * 1024 * 1024
+        self._thread: threading.Thread | None = None
+        self._server: uvicorn.Server | None = None
+        self._server_socket: socket.socket | None = None
+        self._loop: asyncio.AbstractEventLoop | None = None
+        self._started = threading.Event()
+        self._last_error: str | None = None
+        self._stopping = False
+        self.app = self._build_app()
+
+    def _build_app(self) -> FastAPI:
+        app = FastAPI(title="AI Traffic Control Gateway", docs_url=None, redoc_url=None)
+
+        @app.get("/health")
+        async def health() -> dict[str, Any]:
+            return {"status": "running", "endpoint": self.settings.endpoint}
+
+        @app.get("/v1/models")
+        async def models() -> Response:
+            request_id = str(uuid.uuid4())
+            started = time.monotonic()
+            response = await self._proxy_models()
+            elapsed = time.monotonic() - started
+            self._record(request_id, "models", "models", [], [], "allow",
+                         "forwarded" if response.status_code < 400 else "provider_error",
+                         started, response.status_code, elapsed=elapsed,
+                         trace=["Model list request forwarded to the configured provider."])
+            return response
+
+        @app.post("/v1/chat/completions")
+        async def chat_completions(request: Request) -> Response:
+            request_id = str(uuid.uuid4())
+            started = time.monotonic()
+            client_label = request.headers.get("x-client-label", "")[:100]
+            body = await self._read_limited_body(request)
+            if isinstance(body, Response):
+                self._record(request_id, "unknown", "unknown", [], [], "deny", "invalid_request", started, None)
+                return body
+            body_size = len(body)
+            try:
+                payload = json.loads(body)
+                if not isinstance(payload, dict):
+                    raise ValueError("JSON root must be an object")
+                if not isinstance(payload.get("messages"), list):
+                    raise ValueError("messages must be a list")
+                if payload.get("stream") is True:
+                    client_model = str(payload.get("model", "unknown"))[:120]
+                    self._record(request_id, client_model, client_model, [], [], "deny", "unsupported_streaming", started, None, client_label,
+                                 trace=["Streaming is not supported by this local gateway; request was not forwarded."],
+                                 reason="Streaming request rejected before provider forwarding.", payload=payload, payload_size=body_size)
+                    return JSONResponse(
+                        status_code=501,
+                        content={"error": {"type": "unsupported_streaming", "message": "Streaming requests are not supported by this gateway yet. Set stream=false."}},
+                    )
+            except (json.JSONDecodeError, ValueError, UnicodeDecodeError, RecursionError):
+                self._record(request_id, "unknown", "unknown", [], [], "deny", "invalid_request", started, None,
+                             client_label, trace=["Malformed request rejected before policy evaluation."], reason="Expected a JSON object with a messages array.")
+                return JSONResponse(status_code=400, content={"error": {"type": "invalid_request_error", "message": "Expected a JSON object with a messages array."}})
+
+            client_model = str(payload.get("model", "unknown"))[:120]
+            client_label = client_label or self.settings.client_label
+            context = {"request_id": request_id, "provider": self._provider_name(), "endpoint": self.settings.upstream_base_url,
+                       "model": client_model, "client_label": client_label}
+            try:
+                result = self.policy_engine.evaluate_request(payload, context)
+                if asyncio.iscoroutine(result):
+                    result = await result
+                if not isinstance(result, dict) or result.get("decision") not in {"allow", "review", "deny"}:
+                    raise RuntimeError("Policy evaluator returned an invalid decision")
+            except Exception:
+                self._record(request_id, client_model, client_model, [], [], "deny", "policy_error", started, None,
+                             client_label, trace=["Policy evaluation failed; request denied closed."], reason="The local policy engine could not evaluate this request.", payload=payload, payload_size=body_size)
+                return JSONResponse(status_code=503, content={"error": {"type": "policy_error", "message": "The local policy engine could not evaluate this request. The request was not forwarded."}})
+
+            decision = result["decision"]
+            trace = result.get("trace", [])
+            findings = result.get("findings", [])
+            if decision == "deny":
+                self._record(request_id, self.settings.model or client_model, client_model, findings, result.get("rule_ids", []), decision, "denied_by_policy", started, None,
+                             client_label, trace=trace, reason=result.get("reason", "Denied by local policy."), payload=payload, payload_size=body_size)
+                return JSONResponse(status_code=403, content={"error": {"type": "policy_denied", "message": "This request was blocked by a local data protection policy.", "request_id": request_id}})
+
+            if decision == "review":
+                pending = self._add_pending(request_id, payload, trace, findings, size_bytes=body_size,
+                                            provider=self._provider_name(), model=client_model,
+                                            client_label=client_label)
+                if pending is None:
+                    self._record(request_id, client_model, client_model, findings, result.get("rule_ids", []), "deny", "review_unavailable", started, None,
+                                 client_label, trace=trace, reason=result.get("reason", "Review unavailable; denied closed."), payload=payload, payload_size=body_size)
+                    return JSONResponse(status_code=503, content={"error": {"type": "review_unavailable", "message": "Human review is unavailable; the request was not forwarded."}})
+                self._emit({"event": "review_pending", "request_id": request_id, "provider": pending.provider, "model": pending.model,
+                            "client_label": pending.client_label, "findings": findings, "trace": trace,
+                            "created_at": pending.created_at, "deadline": pending.created_at + self.settings.review_timeout_seconds})
+                try:
+                    approved = await asyncio.wait_for(asyncio.wrap_future(pending.decision), self.settings.review_timeout_seconds)
+                except asyncio.TimeoutError:
+                    approved = False
+                    pending.resolution = "review_timeout"
+                finally:
+                    with self._lock:
+                        removed = self._pending.pop(request_id, None)
+                        if removed:
+                            self._pending_bytes = max(0, self._pending_bytes - removed.size_bytes)
+                if not approved:
+                    review_outcome = pending.resolution if pending.resolution in {"review_denied", "review_timeout", "gateway_stopped"} else "review_denied"
+                    self._record(request_id, self.settings.model or client_model, client_model, findings, result.get("rule_ids", []), "review", review_outcome, started, None,
+                                 client_label, trace=trace, reason=f"Request was not forwarded: {review_outcome}.", payload=payload, payload_size=body_size)
+                    return JSONResponse(status_code=403, content={"error": {"type": "review_denied", "message": "The request was denied or the review deadline expired.", "request_id": request_id}})
+
+            # The model sent by the client is retained when configured model is blank;
+            # normally the desktop setting selects the upstream model explicitly.
+            outbound = dict(payload)
+            if self.settings.model:
+                outbound["model"] = self.settings.model
+            response = await self._forward_chat(outbound)
+            elapsed = time.monotonic() - started
+            self._record(request_id, outbound.get("model", client_model), client_model, findings, result.get("rule_ids", []), decision,
+                         "forwarded" if response.status_code < 400 else "provider_error", started, response.status_code, client_label,
+                         elapsed, trace, result.get("reason", ""), payload, body_size)
+            return response
+
+        return app
+
+    async def _read_limited_body(self, request: Request) -> bytes | Response:
+        content_length = request.headers.get("content-length")
+        if content_length:
+            try:
+                if int(content_length) > self.settings.max_body_bytes:
+                    return JSONResponse(status_code=413, content={"error": {"type": "request_too_large", "message": "Request body exceeds the configured local gateway limit."}})
+            except ValueError:
+                return JSONResponse(status_code=400, content={"error": {"type": "invalid_request_error", "message": "Invalid Content-Length header."}})
+        chunks: list[bytes] = []
+        size = 0
+        try:
+            async for chunk in request.stream():
+                size += len(chunk)
+                if size > self.settings.max_body_bytes:
+                    return JSONResponse(status_code=413, content={"error": {"type": "request_too_large", "message": "Request body exceeds the configured local gateway limit."}})
+                chunks.append(chunk)
+            return b"".join(chunks)
+        except Exception:
+            return JSONResponse(status_code=400, content={"error": {"type": "invalid_request_error", "message": "The request body could not be read safely."}})
+
+    async def _forward_chat(self, payload: dict[str, Any]) -> Response:
+        return await self.provider_adapter.chat_completions(payload)
+
+    async def _proxy_models(self) -> Response:
+        return await self.provider_adapter.list_models()
+
+    def _provider_name(self) -> str:
+        return self.provider_adapter.provider_name
+
+    def _add_pending(self, request_id: str, payload: dict[str, Any], trace: list[Any], findings: list[Any],
+                     *, size_bytes: int, provider: str = "configured provider", model: str = "unknown", client_label: str = "") -> PendingReview | None:
+        with self._lock:
+            if self._stopping or len(self._pending) >= 100 or self._pending_bytes + size_bytes > self._max_pending_bytes:
+                return None
+            item = PendingReview(request_id, payload, trace, findings, time.time(), Future(), provider, model, client_label, "pending", size_bytes)
+            self._pending[request_id] = item
+            self._pending_bytes += size_bytes
+            return item
+
+    def pending_reviews(self) -> list[dict[str, Any]]:
+        """Return review snapshots with sensitive values masked by default."""
+        with self._lock:
+            return [{"request_id": p.request_id, "trace": p.trace,
+                     "findings": p.findings, "data_classes": sorted({f.get("data_class", "") for f in p.findings if isinstance(f, dict)}),
+                     "provider": p.provider, "model": p.model, "client_label": p.client_label, "created_at": p.created_at,
+                     "deadline": p.created_at + self.settings.review_timeout_seconds}
+                    for p in self._pending.values()]
+
+    def get_review_payload(self, request_id: str, reveal: bool = False) -> dict[str, Any] | None:
+        """Get one pending body; raw sensitive values require an explicit reveal."""
+        with self._lock:
+            item = self._pending.get(request_id)
+            if item is None:
+                return None
+            if reveal:
+                return copy.deepcopy(item.payload)
+            return self._masked_payload(item.payload, item.findings)
+
+    def recent_requests(self) -> list[dict[str, Any]]:
+        """Return recent audit-safe metadata without request bodies."""
+        with self._lock:
+            return [copy.deepcopy(item["metadata"]) for item in self._recent]
+
+    def get_request_payload(self, request_id: str, reveal: bool = False) -> dict[str, Any] | None:
+        """Return one recent request body, masked unless reveal is explicit."""
+        with self._lock:
+            item = next((row for row in self._recent if row["metadata"].get("request_id") == request_id), None)
+            if item is None:
+                return None
+            if reveal:
+                return copy.deepcopy(item["payload"])
+            return self._masked_payload(item["payload"], item["findings"])
+
+    @staticmethod
+    def _masked_payload(payload: dict[str, Any], findings: list[Any]) -> dict[str, Any]:
+        """Mask detector spans in a copy, leaving the held request untouched."""
+        try:
+            cloned = copy.deepcopy(payload)
+            grouped: dict[str, list[dict[str, Any]]] = {}
+            for finding in findings or []:
+                if isinstance(finding, dict):
+                    location = str(finding.get("location", ""))
+                    if not location.startswith("$."):
+                        raise ValueError("Finding location is unavailable")
+                    grouped.setdefault(location, []).append(finding)
+            for path, matches in grouped.items():
+                if not path.startswith("$."):
+                    continue
+                value = Gateway._path_value(cloned, path)
+                if not isinstance(value, str):
+                    raise ValueError("Finding location does not identify text")
+                for match in sorted(matches, key=lambda item: int(item.get("start", -1)), reverse=True):
+                    try:
+                        start, end = int(match["start"]), int(match["end"])
+                        masked = str(match["masked_value"])
+                        if not (0 <= start < end <= len(value)):
+                            raise ValueError("Finding span is invalid")
+                        value = value[:start] + masked + value[end:]
+                    except (KeyError, TypeError, ValueError):
+                        raise ValueError("Finding could not be masked")
+                Gateway._set_path_value(cloned, path, value)
+            return cloned
+        except Exception:
+            # A masking failure must never fall back to exposing the original body.
+            return {"error": "Unable to render safely masked request content."}
+
+    @staticmethod
+    def _path_value(root: Any, path: str) -> Any:
+        try:
+            parts = re.findall(r"\.([^.[\]]+)|\[(\d+)\]", path[1:])
+            value = root
+            for key, index in parts:
+                value = value[int(index)] if index else value[key]
+            return value
+        except (IndexError, KeyError, TypeError, ValueError):
+            return None
+
+    @staticmethod
+    def _set_path_value(root: Any, path: str, replacement: Any) -> None:
+        try:
+            parts = re.findall(r"\.([^.[\]]+)|\[(\d+)\]", path[1:])
+            parent = root
+            for key, index in parts[:-1]:
+                parent = parent[int(index)] if index else parent[key]
+            key, index = parts[-1]
+            parent[int(index) if index else key] = replacement
+        except (IndexError, KeyError, TypeError, ValueError):
+            return
+
+    def resolve_review(self, request_id: str, approve: bool) -> bool:
+        """Resolve a pending request; only approval can release it upstream."""
+        with self._lock:
+            item = self._pending.get(request_id)
+            if item is None or item.decision.done() or self._stopping:
+                return False
+            item.resolution = "approved" if approve else "review_denied"
+            item.decision.set_result(bool(approve))
+        self._emit({"event": "review_resolved", "request_id": request_id, "approved": bool(approve)})
+        return True
+
+    def _record(self, request_id: str, model: str, client_model: str, findings: list[Any], rule_ids: list[Any], decision: str, outcome: str, started: float, upstream_status: int | None, client_label: str = "", elapsed: float | None = None, trace: list[Any] | None = None, reason: str = "", payload: dict[str, Any] | None = None, payload_size: int = 0) -> None:
+        duration = elapsed if elapsed is not None else max(0.0, time.monotonic() - started)
+        classes = []
+        for finding in findings or []:
+            if isinstance(finding, dict):
+                value = finding.get("data_class") or finding.get("class") or finding.get("name")
+                if value and value not in classes:
+                    classes.append(str(value))
+        metadata = {"timestamp": time.time(), "request_id": request_id, "provider": self._provider_name(), "model": model, "client_model": client_model, "client_label": client_label, "data_classes": classes, "findings": findings or [], "rule_ids": rule_ids or [], "decision": decision, "outcome": outcome, "elapsed_ms": duration * 1000, "elapsed_seconds": duration, "upstream_status": upstream_status, "trace": trace or [], "decision_trace": trace or [], "reason": reason}
+        if self.recorder:
+            try:
+                self.recorder.record_request(metadata)
+            except Exception:
+                pass
+        if payload is not None and not self._stopping:
+            size_bytes = payload_size
+            with self._lock:
+                if not self._stopping and size_bytes <= self._max_retained_request_bytes:
+                    while self._recent and (len(self._recent) >= 100 or self._recent_bytes + size_bytes > self._max_recent_bytes):
+                        removed = self._recent.popleft()
+                        self._recent_bytes = max(0, self._recent_bytes - int(removed.get("size_bytes", 0)))
+                    self._recent.append({"metadata": copy.deepcopy(metadata), "payload": copy.deepcopy(payload),
+                                         "findings": copy.deepcopy(findings or []), "size_bytes": size_bytes})
+                    self._recent_bytes += size_bytes
+        self._emit({"event": "request_completed", **metadata, "findings": findings or []})
+
+    def _emit(self, event: dict[str, Any]) -> None:
+        if self.on_activity:
+            try:
+                self.on_activity(event)
+            except Exception:
+                pass
+
+    def start(self, timeout: float = 8.0) -> None:
+        """Start uvicorn on the configured interface in a daemon thread."""
+        if self.is_running:
+            return
+        if self.settings.bind_host not in {"127.0.0.1", "localhost", "::1"}:
+            raise ValueError("The gateway may bind only to localhost unless an explicit network exposure flow is implemented.")
+        requested_port = self.settings.port
+        listener, actual_port = _open_listener(self.settings.bind_host, requested_port)
+        self._server_socket = listener
+        self.settings.port = actual_port
+        self._port_notice = (f"Port {requested_port} was unavailable; using {actual_port}. Update clients to the displayed endpoint."
+                            if actual_port != requested_port else "")
+        self._stopping = False
+        self._started.clear()
+        # A windowed PyInstaller app has no console streams; Uvicorn's default
+        # dictConfig formatter fails when sys.stderr is None.
+        config = uvicorn.Config(self.app, host=self.settings.bind_host, port=self.settings.port,
+                                log_level="error", access_log=False, log_config=None)
+        self._server = uvicorn.Server(config)
+
+        def run() -> None:
+            self._loop = asyncio.new_event_loop()
+            asyncio.set_event_loop(self._loop)
+            try:
+                self._loop.run_until_complete(self._server.serve(sockets=[listener]))
+            except Exception as exc:
+                # Keep a useful local diagnostic while ensuring credentials are never echoed.
+                detail = str(exc).strip()
+                if self.settings.api_key:
+                    detail = detail.replace(self.settings.api_key, "[redacted]")
+                detail = detail[:180] or "No additional details."
+                self._last_error = f"Gateway server failed ({type(exc).__name__}: {detail})."
+            finally:
+                try:
+                    listener.close()
+                except OSError:
+                    pass
+                self._server_socket = None
+                self._loop.close()
+                self._loop = None
+
+        self._thread = threading.Thread(target=run, name="ai-traffic-control-gateway", daemon=True)
+        self._thread.start()
+        deadline = time.monotonic() + timeout
+        while time.monotonic() < deadline:
+            if self._server.started:
+                return
+            if not self._thread.is_alive():
+                break
+            time.sleep(0.05)
+        self._last_error = self._last_error or f"Gateway did not start on {self.settings.bind_host}:{self.settings.port} within {timeout:g} seconds."
+        self.stop()
+        raise RuntimeError(self._last_error)
+
+    def stop(self, timeout: float = 8.0) -> None:
+        """Stop accepting requests and fail all pending reviews closed."""
+        self._stopping = True
+        with self._lock:
+            for pending in self._pending.values():
+                if not pending.decision.done():
+                    pending.resolution = "gateway_stopped"
+                    pending.decision.set_result(False)
+            self._pending.clear()
+            self._pending_bytes = 0
+            self._recent.clear()
+            self._recent_bytes = 0
+        if self._server:
+            self._server.should_exit = True
+        if self._server_socket and not self._thread:
+            self._server_socket.close()
+        if self._thread:
+            self._thread.join(timeout)
+        self._server = None
+        self._thread = None
+
+    @property
+    def is_running(self) -> bool:
+        return bool(self._thread and self._thread.is_alive() and self._server and not self._server.should_exit)
+
+    @property
+    def status(self) -> dict[str, Any]:
+        return {"running": self.is_running, "endpoint": self.settings.endpoint, "pending_reviews": len(self.pending_reviews()), "error": self._last_error, "notice": getattr(self, "_port_notice", "")}
+
+    def update_settings(self, settings: GatewaySettings) -> None:
+        """Apply updated settings, restarting the listener if address/port changed."""
+        old_address = (self.settings.bind_host, self.settings.port)
+        new_address = (settings.bind_host, settings.port)
+        was_running = self.is_running
+        if was_running and old_address != new_address:
+            self.stop()
+        self.settings = settings
+        self.provider_adapter = self.provider_factory(settings)
+        if was_running and old_address != new_address:
+            self.start()
+
